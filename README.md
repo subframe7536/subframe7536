@@ -10,4 +10,5 @@ For me, programming is equal parts problem-solving and aesthetics. Always geekin
 
 #### Sponsor 赞助
 
-[Afdian (爱发电)](https://afdian.com/a/subframe7536)
+- [Wise](https://wise.com/pay/me/hwcn8yv)
+- [Afdian (爱发电)](https://afdian.com/a/subframe7536)
